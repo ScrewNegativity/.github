@@ -1,1 +1,2 @@
-# .github
+# FuckNegativity
+## 😺
